@@ -18,3 +18,7 @@ humans of Earth who had no knowledge of the existence of the gods. The gods of e
 rather wanted to destroy all because he thought the universe was corrupt. A huge battle raged to decide
 the fate of mankind.
 
+The god of creation like his name said, created Atmora. R with G give life to beings called Daedras on Atmora.
+But Daedras waged wars on each other all the time. So H and A created animals to try to distrub the daedras.
+But unfortunatedly that didn't work. And animals where slaughtered by millions and they had to fight too. 
+
