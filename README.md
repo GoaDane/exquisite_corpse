@@ -9,4 +9,8 @@ the gods of ghar each with a different ability ,
 g had the gift of knowledge,
 h had the gift of energy, 
 a had the gift of  creation , 
-h had the supreme gift of destruction. 
+h had the supreme gift of destruction.
+
+The gods used to live near the Dark side of the moon. 
+They lived without merging conflicts.  
+All the flow worked fine! 
